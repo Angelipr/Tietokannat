@@ -1,0 +1,11 @@
+## Tentti 6
+![image](https://github.com/user-attachments/assets/88c79c95-7d5c-4c1d-bcc8-83915c7b28da)
+![image](https://github.com/user-attachments/assets/5c77b7a1-f445-4252-8fed-c72acd8498db)
+![image](https://github.com/user-attachments/assets/507791a4-e538-476f-b8a7-afada3c9dd2c)
+![image](https://github.com/user-attachments/assets/2c7992d1-5bba-4836-a8bb-239a686ccce0)
+![image](https://github.com/user-attachments/assets/aa4f5229-3852-47ac-91d6-ebf7b0154f33)
+![image](https://github.com/user-attachments/assets/c233b032-12e7-4345-9039-15ee717f9aed)
+![image](https://github.com/user-attachments/assets/d5187240-77b5-4739-ade4-41ca9cc6c146)
+![image](https://github.com/user-attachments/assets/b88aaf5a-c507-4774-a123-f942c1794084)
+![image](https://github.com/user-attachments/assets/e85ad991-ef97-4d65-b31a-86492e3bcdf8)
+![image](https://github.com/user-attachments/assets/7c367074-703e-4d74-a3e9-e0a2f46e6079)
