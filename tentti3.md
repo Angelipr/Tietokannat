@@ -1,0 +1,11 @@
+## Tentti 3
+![image](https://github.com/user-attachments/assets/f83b2fbe-738e-45b7-ac22-06e1dcd09f84)
+![image](https://github.com/user-attachments/assets/a96c81a7-9022-4531-b6cf-2cf9cda9e986)
+![image](https://github.com/user-attachments/assets/b4326c36-e536-4542-9c41-e9a5ff7013f6)
+![image](https://github.com/user-attachments/assets/0f8eef75-a5ea-4f9e-bfce-eb31f53c1c45)
+![image](https://github.com/user-attachments/assets/0c902ebb-f825-4ce7-a769-644c10b08a14)
+![image](https://github.com/user-attachments/assets/a11c6625-7578-48a3-9b6d-58dae325f8a8)
+![image](https://github.com/user-attachments/assets/fb2ea706-cda8-4c1e-88dc-6416eb2bae7e)
+![image](https://github.com/user-attachments/assets/d362278f-eb26-4459-89f8-48252feafa7b)
+![image](https://github.com/user-attachments/assets/aadfc549-639c-4806-8347-02a95aeb6f8b)
+![image](https://github.com/user-attachments/assets/b02dd611-4da3-4b0f-b063-d2ff43014df8)
